@@ -1,0 +1,1 @@
+# hack-blooket-in-factory
